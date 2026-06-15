@@ -1,4 +1,4 @@
-# The Colted Brothers Meme Chain
+# The Colted Brother Meme Chain
 
 A project featuring the same picture of a cartoon Colt .44 over a faded yellow background. 
 
