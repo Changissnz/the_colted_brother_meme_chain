@@ -16,6 +16,11 @@ started noticing the theme back in 2016, a decade ago. It spiked during the hayd
 COVID-19 pandemic, subsided and then rebounded starting after 2024. It's no biggie, though. 
 Nothing personal. 
 
+In this project, I will post the same image, but with different captions along the same 
+theme whenever I feel like it. And the same theme is the concept of brotherhood taking a 
+turn for separation. 
+
+
 ![alt text](TMPOS8.png)  
 
 
@@ -26,3 +31,8 @@ Nothing personal.
 -------------------------------------------------------------------------------------------
 
 ![alt text](auck9v.jpg)  
+
+-------------------------------------------------------------------------------------------
+
+![alt text](auckhy.jpg)  
+
