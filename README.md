@@ -1,6 +1,6 @@
 # The Colted Brother Meme Chain
 
-A project featuring the same picture of a cartoon Colt .44 over a faded yellow background. 
+A meme project featuring the same picture of a cartoon Colt .44 over a faded yellow background. 
 
 The date this project started: 06/14/2026 
 
