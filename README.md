@@ -16,6 +16,13 @@ started noticing the theme back in 2016, a decade ago. It spiked during the hayd
 COVID-19 pandemic, subsided and then rebounded starting after 2024. It's no biggie, though. 
 Nothing personal. 
 
+Yellow is one of those colors that grow on people. It's not a bold color. It's supposed to be 
+those constant ubiquitous background colors. But once it achieves the wrong kind of influence, 
+it turns unreliable. And that is sort of what wealth is prone to, since the market is the one 
+that is supposed to divide. Once people do the dividing, it's more pro-active, and therefore 
+less yellow. But the market is run by human beings. So there's that. My momentary thoughts on 
+the color of yellow. 
+
 In this project, I will post the same image, but with different captions along the same 
 theme whenever I feel like it. And the same theme is the concept of brotherhood taking a 
 turn for separation. 
