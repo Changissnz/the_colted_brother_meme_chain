@@ -16,5 +16,8 @@ started noticing the theme back in 2016, a decade ago. It spiked during the hayd
 COVID-19 pandemic, subsided and then rebounded starting after 2024. It's no biggie, though. 
 Nothing personal. 
 
+![alt text](colt_44.png)  
+
+
 -------------------------------------------------------------------------------------------
 
