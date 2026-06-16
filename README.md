@@ -2,7 +2,8 @@
 
 A meme project featuring the same picture of a cartoon Colt .44 over a faded yellow background. 
 
-The date this project started: 06/14/2026 
+Project started: 06/14/2026 
+Project finished: 06/16/2026
 
 Current events in American capitalism: 
 - The markets are rough for the commoner.
